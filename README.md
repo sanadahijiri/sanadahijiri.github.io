@@ -1,1 +1,0 @@
-# sanadahijiri.github.io
